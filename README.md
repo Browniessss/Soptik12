@@ -3,4 +3,7 @@
 - I'm learning everything🤣
 - I especially like programming
 - Have a nice Day!!❤️💖
-![image](https://user-images.githubusercontent.com/83182319/152113136-f87df0a7-ee95-4d66-9004-5b763a59326a.png)
+- I love Camels and Sloths!!❤️
+![image](https://user-images.githubusercontent.com/83182319/152113375-2cce33dc-85e3-4a40-b6f4-863f2744be3e.png)
+
+
