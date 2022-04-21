@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Oliver-Soptík11
+- 👋 Hi, I’m Oliver aka Soptík11
 - I’m Blockbench Modeller, Gamer, Resource Pack Designer, and Developer
 - I'm learning everything🤣
 - I especially like programming
